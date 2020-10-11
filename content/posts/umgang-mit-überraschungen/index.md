@@ -1,5 +1,5 @@
 +++
-title = "Umgang mit Überraschungen"
+title = "Ende gut alles gut"
 date = "2020-10-11"
 draft = true
 pinned = false
@@ -19,4 +19,10 @@ Ich versuchte die mutter Von meinem Freund anzurufen. Sie nam aber nicht ab.
 
 Ich ging danach auch zu meinen Freunden bei der Polizei. 
 
-Wir bekamen eine Visitenkarte von dem Polizist der unsser anligen aufgenommen hat und danach unsere Eltern kontaktierte.
+Wir bekamen eine Visitenkarte von dem Polizist der unsser anligen aufgenommen hat und danach unsere Eltern kontaktierte.   
+
+Niedergeschlagen brachten wir unssere freunde nach Hause.
+
+**Ende gut alles gut**
+
+Wir bekamen unssere sachen 3 Stunden Später wieder. Wir waren überglüklich!
