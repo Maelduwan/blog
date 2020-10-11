@@ -13,4 +13,10 @@ Meine freunde und ich waren im Botanischen Garten und haben verstecken gespielt.
 
 Ich ging nach Hause um mein Handy zu holen
 
-meine freunde und mein Bruder ginge zur Polizei um eine anzeige zu machen.
+meine freunde und mein Bruder gingen zur Polizei um eine anzeige zu machen.
+
+Ich versuchte die mutter Von meinem Freund anzurufen. Sie nam aber nicht ab. 
+
+Ich ging danach auch zu meinen Freunden bei der Polizei. 
+
+Wir bekamen eine Visitenkarte von dem Polizist der unsser anligen aufgenommen hat und danach unsere Eltern kontaktierte.
