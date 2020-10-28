@@ -3,8 +3,11 @@ title = "Ende gut alles gut"
 date = "2020-10-11"
 draft = true
 pinned = false
+image = "rucksack10.jpg"
 description = ""
 +++
+![](rucksack10.jpg)
+
 **Was passiert ist?** 
 
 Meine Freunde und ich waren im Botanischen Garten und haben verstecken gespielt. Danach kamen wir zu unserem Platz und unsere Sachen waren nicht mehr da. Schock!!!!! Wir hatten in unseren Sachen 2 Handys, 2 Schlüssel und ein wenig Geld. Alles war weg. Es waren die Handys und Schlüssel von meinen Freunden. Es hat mir sehr leid getan und wir haben überlegt was wir tun können. Denn einer meiner Freunde musste seinem Vater bescheid sagen, dass er nun später kommt.
