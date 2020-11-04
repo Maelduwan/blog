@@ -15,4 +15,4 @@ Als begeisterter One Piece leser finde ich es sehr schade das im jahr in etwa nu
 
 Am liebsten wäre es mir wenn pro monat ein buch erscheinen würde. Eiichiro Oda schreibt allerdings nicht nur One piece deshalb denke ich das es ganz gut ist das wir bis zu drei bücher im jahr bekommen. Ich habe mommentan die bänder 1 bis 30 und 46 bis 60 und 90 bis 95 fals jemand die anderen nummern verkaufen würde bitte unbetingt bei mir melden!!!!!!!!!!!!!!!!!!!!!!è!èèè!è!!è!àPèéKPLéIHZ/UJ 
 
-Buchstaben grüsse Maël
+Liebste Buchstaben grüsse Maël
