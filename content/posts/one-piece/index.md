@@ -7,12 +7,12 @@ description = ""
 +++
 ![](one-piece-bande-2.jpg)
 
-Ihr wisst warscheinlich alle das ich im letztdem jahr die ganzen sommer ferien am One Piece lesen war. 
+Ihr wisst warscheinlich alle, dass ich im letztem Jahr die ganzen Sommerferien am One Piece lesen war. 
 
-Ich habe meinen kleinen bruder nach langer langer überzeugung ebenfalls begeistern können One Piece zu lesen. Er findet es ein richtig cooler Manga und liest seit kurzem sehr gerne. Es freut mich das ich mich jetzt mit meinem kleinen Bruder über One Piece austauschen kann.
+Ich habe meinen kleinen Bruder nach langer langer Überzeugung ebenfalls begeistern können One Piece zu lesen. Er findet es ein richtig cooles Manga und liest seit kurzem sehr gerne. Es freut mich, dass ich mich jetzt mit meinem kleinen Bruder über One Piece austauschen kann.
 
-Als begeisterter One Piece leser finde ich es sehr schade das im jahr in etwa nur 3 bücher erscheinen. 
+Als begeisterter One Piece Leser finde ich es sehr schade, dass im Jahr in etwa nur 3 Bücher erscheinen. 
 
-Am liebsten wäre es mir wenn pro monat ein buch erscheinen würde. Eiichiro Oda schreibt allerdings nicht nur One piece deshalb denke ich das es ganz gut ist das wir bis zu drei bücher im jahr bekommen. Ich habe mommentan die bänder 1 bis 30 und 46 bis 60 und 90 bis 95 fals jemand die anderen nummern verkaufen würde bitte unbetingt bei mir melden!!!!!!!!!!!!!!!!!!!!!!è!èèè!è!!è!àPèéKPLéIHZ/UJ 
+Am liebsten wäre es mir, wenn pro Monat ein Buch erscheinen würde. Eiichiro Oda schreibt allerdings nicht nur One Piece deshalb denke ich das es ganz gut ist das wir bis zu drei Bücher im Jahr bekommen. Ich habe momentan die Bänder 1 bis 30 und 46 bis 60 und 90 bis 95 falls jemand die anderen Nummern (von 31 bis 45 und von 61 bis 89) verkaufen würde bitte unbedingt bei mir melden!!!!!!!!!!!!!!!!!!!!!!è!èèè!è!!è!àPèéKPLéIHZ/UJ 
 
 Liebste Buchstaben grüsse Maël
