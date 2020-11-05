@@ -7,7 +7,7 @@ description = ""
 +++
 ![](one-piece-bande-2.jpg)
 
-Ihr wisst warscheinlich alle, dass ich im letztem Jahr die ganzen Sommerferien am One Piece lesen war. 
+Ihr wisst wahrscheinlich alle, dass ich im letztem Jahr die ganzen Sommerferien am One Piece lesen war. 
 
 Ich habe meinen kleinen Bruder nach langer langer Überzeugung ebenfalls begeistern können One Piece zu lesen. Er findet es ein richtig cooles Manga und liest seit kurzem sehr gerne. Es freut mich, dass ich mich jetzt mit meinem kleinen Bruder über One Piece austauschen kann.
 
