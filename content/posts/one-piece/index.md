@@ -3,6 +3,7 @@ title = "One Piece"
 date = "2020-11-04"
 draft = false
 pinned = false
+image = "one-piece-bande-2.jpg"
 description = ""
 +++
 ![](one-piece-bande-2.jpg)
