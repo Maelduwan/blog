@@ -1,7 +1,7 @@
 +++
 title = "One Piece"
 date = "2020-11-04"
-draft = true
+draft = false
 pinned = false
 description = ""
 +++
