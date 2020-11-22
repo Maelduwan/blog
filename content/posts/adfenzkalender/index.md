@@ -1,7 +1,10 @@
 +++
-title = "Advenzkalender"
+title = "Adventskalender"
 date = "2020-11-15"
 draft = true
 pinned = false
+image = "advenzkalender1.jpg"
 +++
-Ich und meine fammillie haben diese woche einen Adfenzkalender angefangen zu basteln. Der Advenzkalender besteht aus kleinen Papiergondeln. Jeder aus der familie macht in sechs von den gondeln eine kleine überaschung für die anderen hinein. Ich gebe warscheinlich ein par süsiketen und andere Kleinigkeiten in die gondeln. In der Anleitung steht das man die gondeln ohne kleber und andere sachen zusamenstecken kann. Wir haben es versucht aber nicht ohne klebe geschaft. Ich freue mich jetzt schon darauf gemeinsam ein par "Güetzi" zu Backen
+![](advenzkalender1.jpg)
+
+Ich und meine Familie haben diese Woche einen Adventskalender angefangen zu basteln. Der Adventskalender besteht aus kleinen Papiergondeln. Jeder aus der Familie macht in sechs von den Gondeln eine kleine Überraschung für die anderen hinein. Ich gebe wahrscheinlich ein paar Süssigkeiten und andere Kleinigkeiten in die Gondeln. In der Anleitung steht, dass man die Gondeln ohne Kleber und andere Sachen zusammenstecken kann. Wir haben es versucht aber nicht ohne Kleber geschafft. Ich freue mich jetzt schon darauf gemeinsam ein par "Güetzi" zu Backen.
