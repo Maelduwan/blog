@@ -6,7 +6,7 @@ pinned = false
 +++
 Hallo Leute ich habe in drei wochen meine Karate Prüfung (Auf denn 1 Kyu. Das ist meine achte Prüfung) und ich bereite mich seit einendhalb Jahre darauf vor. 
 
-Ich habe nun schon lange an dem grund gerüst für die prüfung gearbeitet und seit drei wochen arbeite ich an denn details und möchte mich noch in denn kleinichkeiten verbessern. 
+Ich habe nun schon lange an dem grund gerüst für die prüfung gearbeitet und seit drei wochen arbeite ich an denn details. Ich möchte mich mommentan auf die details konzentrieren und verbessern. 
 
 Die prüfung ist schon zimlich schwer denn sie ist eine Prüfung vor dem schwarzen gurt. Die prüfung auf denn schwarzen gurt darf ich jedoch erst mit 16 machen. 
 
