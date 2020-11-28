@@ -11,3 +11,5 @@ Ich habe nun schon lange an dem grund gerüst für die prüfung gearbeitet und s
 Die prüfung ist schon zimlich schwer denn sie ist eine Prüfung vor dem schwarzen gurt. Die prüfung auf denn schwarzen gurt darf ich jedoch erst mit 16 machen. 
 
 Ich mache jetzt seit Sieben Jahren Karate und die prüfung ist mir sehr wichtig. Leider darf auf grund Corona nimand zuschauen kommen. Mein bruder und meiine Eltern wären sehr gerne dabei.
+
+[Video Prüfungskata](https://www.youtube.com/watch?v=UfO5SJ94zro&list=PLPlAHovKSLl3S_8eNjoBPOoD8f2k5lm7c&index=7)
