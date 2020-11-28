@@ -12,4 +12,6 @@ Die prüfung ist schon zimlich schwer denn sie ist eine Prüfung vor dem schwarz
 
 Ich mache jetzt seit Sieben Jahren Karate und die prüfung ist mir sehr wichtig. Leider darf auf grund Corona nimand zuschauen kommen. Mein bruder und meiine Eltern wären sehr gerne dabei.
 
+Hier noch ein video von der Kata die ich zeige. Auf dem Video sieht man auch gleich meinen Trainer. Ich mag ihn sehr und er hilft mir sehr gut.
+
 [Video Prüfungskata](https://www.youtube.com/watch?v=UfO5SJ94zro&list=PLPlAHovKSLl3S_8eNjoBPOoD8f2k5lm7c&index=7)
