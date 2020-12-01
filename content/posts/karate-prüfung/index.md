@@ -4,7 +4,7 @@ date = "2020-11-28"
 draft = true
 pinned = false
 +++
-Hallo Leute ich habe in drei Wochen meine Karate Prüfung (Auf denn 1 Kyu. Das ist meine achte Prüfung) und ich bereite mich seit einendhalb Jahre darauf vor. 
+Hallo Leute ich habe in drei Wochen meine Karate Prüfung (Auf denn 1 Kyu. Das ist meine achte Prüfung) und ich bereite mich seit Einhalbjahre darauf vor. 
 
 Ich habe nun schon lange an dem Grundgerüst für die Prüfung gearbeitet und seit drei Wochen arbeite ich an denn Details. Ich möchte mich momentan auf die Details konzentrieren und sie verbessern. 
 
