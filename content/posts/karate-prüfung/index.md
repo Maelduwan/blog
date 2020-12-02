@@ -4,13 +4,13 @@ date = "2020-11-28"
 draft = true
 pinned = false
 +++
-Hallo Leute ich habe in drei Wochen meine Karate Prüfung (Auf denn 1 Kyu. Das ist meine achte Prüfung) und ich bereite mich seit Einhalbjahre darauf vor. 
+Hallo Leute ich habe in drei Wochen meine Karate Prüfung (Auf denn 1 Kyu. Das ist meine achte Prüfung) und ich bereite mich seit eineinhalb Jahren darauf vor. 
 
 Ich habe nun schon lange an dem Grundgerüst für die Prüfung gearbeitet und seit drei Wochen arbeite ich an denn Details. Ich möchte mich momentan auf die Details konzentrieren und sie verbessern. 
 
-Die Prüfung ist schon ziemlich schwer denn sie ist eine Prüfung vor dem schwarzen Gurt. Die Prüfung auf denn schwarzen Gurt darf ich jedoch erst mit 16 machen. 
+Die Prüfung ist schon ziemlich schwer denn sie ist die Prüfung vor dem schwarzen Gurt. Die Prüfung auf den schwarzen Gurt darf ich jedoch erst mit 16 machen. 
 
-Ich mache jetzt seit Sieben Jahren Karate und die Prüfung ist mir sehr wichtig. Leider darf auf Grund Corona niemand zuschauen kommen. Mein Bruder und meine Eltern wären sehr gerne dabei.
+Ich mache jetzt seit sieben Jahren Karate und die Prüfung ist mir sehr wichtig. Leider darf aufgrund Corona niemand zuschauen kommen. Mein Bruder und meine Eltern wären sehr gerne dabei.
 
 Hier noch ein video von der Kata die ich zeige. Auf dem Video sieht man auch gleich meinen Trainer. Ich mag ihn sehr und er hilft mir sehr gut.
 
