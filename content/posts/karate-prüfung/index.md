@@ -18,3 +18,5 @@ Ich mache jetzt seit sieben Jahren Karate und die Prüfung ist mir sehr wichtig.
 Hier noch ein video von der Kata die ich zeige. Auf dem Video sieht man auch gleich meinen Trainer. Ich mag ihn sehr und er hilft mir sehr gut.
 
 [Video Prüfungskata](https://www.youtube.com/watch?v=UfO5SJ94zro&list=PLPlAHovKSLl3S_8eNjoBPOoD8f2k5lm7c&index=7)
+
+Hier ein Video von meiner letzten Prüfungskata
