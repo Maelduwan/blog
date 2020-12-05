@@ -1,7 +1,7 @@
 +++
 title = "Karate Prüfung"
 date = "2020-11-28"
-draft = true
+draft = false
 pinned = false
 image = "maru-dojo.png"
 +++
