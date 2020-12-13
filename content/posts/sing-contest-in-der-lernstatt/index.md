@@ -18,3 +18,5 @@ Zum üben habe ich Folgendes vorgehen gewält.
 4. Das mache ich jetzt jeden tag eine halbestunde und dan solte ich am montag bereit sein.
 
    Hier geht es zum [Musikvideo](https://www.youtube.com/watch?v=CY8E6N5Nzec) ist auch mein übungsvideo
+
+   Nun übe ich noch etwas weiter damit ich morgen auch wirklich fit bin.
