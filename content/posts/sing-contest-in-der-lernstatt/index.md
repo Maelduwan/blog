@@ -13,9 +13,8 @@ Ich kannte den song schon aber er ist Trotzdem nicht so einfach zu singen wie ic
 Zum üben habe ich Folgendes vorgehen gewält. 
 
 1. ich habe den song mehrmals angehört und dabei versucht denn text zu verstehen.
-
 2. Ich habe den songtext ausgedruckt und eingeübt.
-
 3. Ich habe angefange den song mitzusingen.
-
 4. Das mache ich jetzt jeden tag eine halbestunde und dan solte ich am montag bereit sein.
+
+   Hier geht es zum Musikvideo ist auch mein übungsvideo
