@@ -4,7 +4,7 @@ date = "2020-12-13"
 draft = true
 pinned = false
 +++
-Am Donerstag letztewoche Habe ich in der Lernstatt bei einem Sing Contest mitgemacht und Ich muss jetzt den song "Freinds von Marshmello" einüben. 
+Am Donerstag letztewoche Habe ich in der Lernstatt bei einem Sing Contest mitgemacht und Ich muss jetzt den song "Friends von Marshmello" einüben. 
 
 Ich werde ihn am Montag mit einem kollegen vorsingen.  
 
@@ -17,4 +17,4 @@ Zum üben habe ich Folgendes vorgehen gewält.
 3. Ich habe angefange den song mitzusingen.
 4. Das mache ich jetzt jeden tag eine halbestunde und dan solte ich am montag bereit sein.
 
-   Hier geht es zum Musikvideo ist auch mein übungsvideo
+   Hier geht es zum [Musikvideo](https://www.youtube.com/watch?v=CY8E6N5Nzec) ist auch mein übungsvideo
