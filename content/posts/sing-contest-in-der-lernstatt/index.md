@@ -3,14 +3,17 @@ title = "Sing Contest in der Lernstatt"
 date = "2020-12-13"
 draft = true
 pinned = false
+image = "mikro6.png"
 +++
-Am Donerstag letztewoche Habe ich in der Lernstatt bei einem Sing Contest mitgemacht und Ich muss jetzt den song "Friends von Marshmello" einüben. 
+![](mikro6.png)
 
-Ich werde ihn am Montag mit einem kollegen vorsingen.  
+Am Donnerstag letzte Woche habe ich in der Lernstatt bei einem Sing Contest mitgemacht und Ich muss jetzt den song "Friends von Marshmello" einüben. 
 
-Ich kannte den song schon aber er ist Trotzdem nicht so einfach zu singen wie ich dachte. Das üben macht mir spass und ich lerne dabei noch ein bischen englisch. 
+Ich werde ihn am Montag mit einem Kollegen vorsingen.  
 
-Zum üben habe ich Folgendes vorgehen gewält. 
+Ich kannte den song schon aber er ist Trotzdem nicht so einfach zu singen wie ich dachte. Das üben macht  mir Spass und ich lerne dabei noch ein wenig Englisch. 
+
+Zum üben habe ich folgendes Vorgehen gewählt. 
 
 1. ich habe den song mehrmals angehört und dabei versucht denn text zu verstehen.
 2. Ich habe den songtext ausgedruckt und eingeübt.
