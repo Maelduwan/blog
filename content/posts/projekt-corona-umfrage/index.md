@@ -3,11 +3,8 @@ title = "Projekt Corona Umfrage "
 date = "2020-12-22"
 draft = true
 pinned = false
+image = "covid-4948866_640.jpg"
 +++
-
-
-![]()
-
 
 
 ![](covid-4948866_640.jpg)
