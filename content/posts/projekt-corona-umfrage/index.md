@@ -4,7 +4,7 @@ date = "2020-12-22"
 draft = true
 pinned = false
 +++
-Im Blog von Tim Kontet ihr lesen was für interesante resultete bei der Umfrage entstanden sind.
+Im Blog von Tim Kontet ihr lesen was für interesante resultete bei der [Umfrage](https://timlernblog.netlify.app/projekt-coronaumfrage/) entstanden sind.
 
 In diesem Blog gebe ich euch Einblick Wie ich es empfunden habe die umfrage durchzuführen und die leute auf der strasse zu fragen.
 
