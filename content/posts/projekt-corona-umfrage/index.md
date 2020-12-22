@@ -21,3 +21,5 @@ Was für mich eher schwirig war.
 
 * Es war schwirig die motivation zu behalten wen man von denn leuten nur abfuhren erteilt bekam
 * Es gab tage an dennen wir bis zu 35 pesonen fragten ob sie zeit haben und davon haben in etva 10 mitgeholfen. Das war ein bischen frustrierend.
+
+Ich bin gespant wie ich und Tim weitergehen.
