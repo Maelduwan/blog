@@ -4,26 +4,30 @@ date = "2020-12-22"
 draft = true
 pinned = false
 +++
-Im Blog von Tim Kontet ihr lesen was für interesante resultete bei der [Umfrage](https://timlernblog.netlify.app/projekt-coronaumfrage/)
+
+
+![]()
+
+
 
 ![](covid-4948866_640.jpg)
 
- entstanden sind.
+Im Blog von Tim konntet ihr bereits lesen, was für interessante Resultate bei der [Umfrage](https://timlernblog.netlify.app/projekt-coronaumfrage/) entstanden sind.
 
-In diesem Blog gebe ich euch Einblick Wie ich es empfunden habe die umfrage durchzuführen und die leute auf der strasse zu fragen.
+In diesem Blog gebe ich euch Einblick wie ich es empfunden habe die Umfrage durchzuführen und die Leute auf der Strasse zu fragen.
 
-Was ich toll fand. 
+Was ich toll fand:
 
-* es hat spass gemacht das projkt zu zweit mit Tim anzupacken und durchzuführen.
-* Es freut mich das wir es bis zum Schluss durchgehalten haben. 
-* es gab tage an dennen wir sehr viele leute fragen konnten zb. an einem tag haben wir bis zu zwanzig Leute Befragen konnten und haben Bei ihnen antworten bekommen.
-* Es machte mir spass das ich und Tim nach dem projekt zusamen den mittag verbracht haben.
+* Es hat Spass gemacht das Projekt zu zweit mit Tim anzupacken und durchzuführen.
+* Es freut mich, dass wir bis zum Schluss durchgehalten haben. 
+* Es gab Tage an denen wir sehr viele Leute fragen konnten zb. an einem Tag haben wir bis zu zwanzig Leute befragen können und haben bei ihnen Antworten bekommen.
+* Es machte mir Spass das ich und Tim nach dem Projekt zusammen den Mittag verbracht haben.
 
 
 
-Was für mich eher schwirig war.
+Was für mich eher schwierig war:
 
-* Es war schwirig die motivation zu behalten wen man von denn leuten nur abfuhren erteilt bekam
-* Es gab tage an dennen wir bis zu 35 pesonen fragten ob sie zeit haben und davon haben in etva 10 mitgeholfen. Das war ein bischen frustrierend.
+* Es war schwierig die Motivation zu behalten wenn man von denn Leuten nur Abfuhren erteilt bekam.
+* Es gab Tage an denen wir bis zu 35 Personen fragten ob sie Zeit haben und davon haben in etwa 10 mitgeholfen. Das war etwas frustrierend.
 
-Ich bin gespant wie ich und Tim weitergehen.
+Ich bin gespannt wie ich und Tim weitergehen.
