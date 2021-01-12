@@ -15,3 +15,5 @@ seit einiger zeit fasziniert mich das schneiden von videos. Mein bevorzugtes Pro
 * die schrift verändern
 * sound hinzufügen
 * soundefeckte hinzufügen
+
+tematisch schneide ich eigentlich nur Anime videos, da mich diese welt kommplet fasziniert.
