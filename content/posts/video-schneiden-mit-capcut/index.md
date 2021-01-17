@@ -7,16 +7,21 @@ image = "img_0064.jpg"
 +++
 ![](img_0064.jpg)
 
-seit einiger zeit fasziniert mich das schneiden von videos. Mein bevorzugtes Programm ist CapCut. Ich mag CapCut wweil es zimlich einfach in der hanhabung ist. Dazu hat es sehr viele efeckte und bearbetungs möglichkeiten. z.b
+Seit einiger Zeit fasziniert mich das schneiden von Videos. Mein bevorzugtes Programm ist CapCut. Ich mag CapCut weil es ziemlich einfach in der Handhabung ist. Dazu hat es sehr viele Effekte und Bearbeitungsmöglichkeiten. 
 
-* Man kann....
-* spezielle übergänge gestallten
-* animationen plazieren
+Man kann...
+
+* spezielle Übergänge gestallten
+* Animationen platzieren
 * Cover auswählen
-* farbtonfilter hinzufügen
-* format verändern
-* die schrift verändern
-* sound hinzufügen
-* soundefeckte hinzufügen
+* Farbtonfilter hinzufügen
+* Format verändern
+* Die Schrift verändern
+* Sound hinzufügen
+* Soundeffekte hinzufügen
 
-tematisch schneide ich eigentlich nur Anime videos, da mich diese welt kommplet fasziniert.
+Thematisch schneide ich eigentlich nur Anime Videos, da mich diese Welt komplett fasziniert.
+
+
+
+Bei diesem Video habe ich in etwa 2 stunden gehabt und bei diesem Video habe ich 30 min gehabt.
