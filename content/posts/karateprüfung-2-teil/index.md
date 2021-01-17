@@ -17,3 +17,4 @@ Was ich machen musste.
 
 * Ich zeigte die Kata Fukyu-Gata-Nidan die ich im ersten Teil [verlinkt](https://www.youtube.com/watch?v=UfO5SJ94zro&list=PLPlAHovKSLl3S_8eNjoBPOoD8f2k5lm7c&index=7) habe.
 * Dazu zeigte ich das gesamte technikt program das ich hier [verlinkt](https://www.youtube.com/watch?v=_5s5mR6iMKQ&list=PLPlAHovKSLl3fwdysiBexsknujsb5qj77&index=8) habe.
+* danach musste ich noch 50 kniebeugen und 40 Liegestüzen auf denn fäusten machen. Wer Lust hat kann es gerne ausprobieren und mir schreiben wie anstrengend sie es fanden.
