@@ -1,7 +1,7 @@
 +++
 title = "Video schneiden mit CapCut"
 date = "2021-01-12"
-draft = true
+draft = false
 pinned = false
 image = "img_0064.jpg"
 +++
