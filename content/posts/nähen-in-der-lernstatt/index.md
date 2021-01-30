@@ -10,4 +10,6 @@ In der Lernstatt gibt es regelmäsig workshops zu verschidenen tehmen Ich bin ge
 
 * Als erstes haben wir Das tehma Nähen gehabt und sind danach auf die Ide gekommen das wir einen Pulover Nähen könnten.
 * Als nächstes haben wir den schtoff für die Pulover in Soloturn Gekauft.
-* Momenatan sind wir am schnitmuster und Am Nähen.
+* Momenatan sind wir am schnitmuster machen und am Nähen. 
+
+Mein Pulover wird In der mitte Geteilt sein und Aus Rot und Blau bestehen. Die Ärmel werden dann die entgegengesetzte Farbe haben.
