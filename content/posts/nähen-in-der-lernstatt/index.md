@@ -12,4 +12,4 @@ In der Lernstatt gibt es regelmäsig workshops zu verschidenen tehmen Ich bin ge
 * Als nächstes haben wir den schtoff für die Pulover in Soloturn Gekauft.
 * Momenatan sind wir am schnitmuster machen und am Nähen. 
 
-Mein Pulover wird In der mitte Geteilt sein und Aus Rot und Blau bestehen. Die Ärmel werden dann die entgegengesetzte Farbe haben. Ihr könnt es euch in etwa so ausmahlen das ich so ausehen werde wie ein Hofnarr aus dem mittelalter.    ; ) Ich werde noch ein foto Hochladen sobald ich ihn Fertig. gestellt habe.
+Mein Pulover wird In der mitte Geteilt sein und Aus Rot und Blau bestehen. Die Ärmel werden dann die entgegengesetzte Farbe haben. Ihr könnt es euch in etwa so ausmahlen das ich so ausehen werde wie ein Hofnarr aus dem mittelalter.    ; ) Ich werde noch ein foto Hochladen sobald ich ihn Fertig gestellt habe.
