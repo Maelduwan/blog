@@ -4,7 +4,7 @@ date = "2021-01-30"
 draft = true
 pinned = false
 +++
-In der Lernstatt gibt es regelmässig Workshops zu verschiedenen Themen Ich bin gerade dabei einen Pullover zu  nähen. Ich nähe den Pullover mit 5 weiteren Kollegen aus der Lernstatt. Ich bin momentan am Schnittmuster machen für den  Pullover. 
+In der Lernstatt gibt es regelmässig Workshops zu verschiedenen Themen. Ich bin gerade dabei einen Pullover zu  nähen. Ich nähe den Pullover mit 5 weiteren Kollegen aus der Lernstatt. Ich bin momentan am Schnittmuster machen für den  Pullover. 
 
 **Die Schritte die wir bis jetzt gemacht haben.**
 
