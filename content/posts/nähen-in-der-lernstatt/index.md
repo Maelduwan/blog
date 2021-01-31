@@ -4,12 +4,12 @@ date = "2021-01-30"
 draft = true
 pinned = false
 +++
-In der Lernstatt gibt es regelmäsig workshops zu verschidenen tehmen Ich bin gerade dabei einen Pulover zu  nähen. Ich nähe den Pulover mit 5 weiteren Kolegen aus der Lernstatt. Ich bin momentan am Schnitmuster machen für den  Pulover. 
+In der Lernstatt gibt es regelmässig Workshops zu verschiedenen Themen Ich bin gerade dabei einen Pullover zu  nähen. Ich nähe den Pullover mit 5 weiteren Kollegen aus der Lernstatt. Ich bin momentan am Schnittmuster machen für den  Pullover. 
 
-**Die schrite die wir bis jetzt gemacht haben.**
+**Die Schritte die wir bis jetzt gemacht haben.**
 
-* Als erstes haben wir Das tehma Nähen gehabt und sind danach auf die Ide gekommen das wir einen Pulover Nähen könnten.
-* Als nächstes haben wir den schtoff für die Pulover in Soloturn Gekauft.
-* Momenatan sind wir am schnitmuster machen und am Nähen. 
+* Als erstes haben wir Das Thema Nähen gehabt und sind danach auf die Idee gekommen das wir einen Pullover Nähen könnten.
+* Als nächstes haben wir den Stoff für die Pullover in Solothurn Gekauft.
+* Momentan sind wir am Schnittmuster machen und am Nähen. 
 
-Mein Pulover wird In der mitte Geteilt sein und Aus Rot und Blau bestehen. Die Ärmel werden dann die entgegengesetzte Farbe haben. Ihr könnt es euch in etwa so ausmahlen das ich so ausehen werde wie ein Hofnarr aus dem mittelalter.    ; ) Ich werde noch ein foto Hochladen sobald ich ihn Fertig gestellt habe.
+Mein Pullover wird In der Mitte Geteilt sein und Aus Rot und Blau bestehen. Die Ärmel werden dann die entgegengesetzte Farbe haben. Ihr könnt es euch in etwa so ausmahlen das ich so aussehen werde wie ein Hofnarr aus dem Mittelalter.    ; ) Ich werde noch ein Foto Hochladen sobald ich ihn Fertig gestellt habe.
