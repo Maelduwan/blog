@@ -3,6 +3,7 @@ title = "Wie ich und meine Familie die Corona Situation handhaben."
 date = "2021-02-10"
 draft = true
 pinned = false
+description = "Es ist jetzt etwa ein Jahr her als die Covid 19 Situation angefangen hat, hier erzähle ich wie ich sie erlebt und was mir hilft damit umzugehen."
 +++
 Ich und meine Familie Machen aus der Covid19 situatin das beste was wir können.
 
