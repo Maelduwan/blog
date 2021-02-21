@@ -1,14 +1,14 @@
 +++
 title = "Wie ich und meine Familie die Corona Situation handhaben."
 date = "2021-02-10"
-draft = true
+draft = false
 pinned = false
 image = "p6220027.jpeg"
 description = "Es ist jetzt etwa ein Jahr her als die Covid 19 Situation angefangen hat, hier erzähle ich wie ich sie erlebt und was mir hilft damit umzugehen."
 +++
 ![](p6220027.jpeg)
 
-Ich und meine Familie Machen aus der Covid19 Situatin das Beste was wir können.
+Ich und meine Familie machen aus der Covid19 Situatin das Beste was wir können.
 
  zum Beispiel. 
 
